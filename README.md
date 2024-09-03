@@ -6,7 +6,7 @@ Minhas principais atividades no Github são:
 
 • Estudar as aulas da plataforma Alura📖😔:
 • Programação Scratch e JavaScript💻:
-• Meu desenvolvimento pessoal em programação⤴️:
+• Meu desenvolvimento pessoal em programação📈:
 
 Para entrar em contato comigo, acesse:
 
